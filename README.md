@@ -1,7 +1,7 @@
 
 
 <p align="center"> look at strawpage byi </p>
-
+<p align="center"> 8TEEN </p>
 <p align="center"> ╭─────────────────────╮ </p>
   
 　　　　　　　　　　　　　　　　    　  　 　　  　     . . ★ https://thethirdchild.straw.page 
