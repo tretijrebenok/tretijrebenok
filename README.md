@@ -3,7 +3,7 @@
 <p align="center"> look at strawpage byi </p>
 <p align="center"> ╭─────────────────────╮ </p>
   
-　　　　　　　　　　　　　　　　    　  　 　　  　     . . ★ https://cyborgninjas.straw.page/ponytown
+　　　　　　　　　　　　　　　　    　  　 　　  　     . . ★ https://rusameanal.straw.page/
                           
 <p align="center"> ╰─────────────────────╯ </p>
 
